@@ -1,1 +1,1 @@
-https://higoralexamdne-netizen.github.io/Chit-do-ti-a-vo-2.0/
+https://autismo.com
